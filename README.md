@@ -1,0 +1,2 @@
+# sudcord
+Sudcord tanıtım bölümü.
