@@ -8,4 +8,4 @@
 
 # harikaymış! nasıl katılabilirim?
 
-**Yapman gereken şey [Discord sunucuma](https://discord.gg/52Fhmzsr7A]) katılarak benimle iletişime geçmek. Sanırım beni tanırsın, sanırım.**
+**Yapman gereken şey [Discord sunucuma](https://discord.gg/HNqevGFuVQ]) katılarak benimle iletişime geçmek. Sanırım beni tanırsın, sanırım.**
